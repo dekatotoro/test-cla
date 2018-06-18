@@ -1,3 +1,3 @@
 # test-cls
 
-## Getting Started
+## Getting ☆ted
